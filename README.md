@@ -1,0 +1,1 @@
+# Veri_yapilari_odevi_patika
